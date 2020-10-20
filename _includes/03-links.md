@@ -1,1 +1,1 @@
-https://www.goldentrailseries.com
+[Golden Trail Series](https://www.goldentrailseries.com)
